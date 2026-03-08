@@ -1,1 +1,1 @@
-birinin bişeyleriiiiiiii vanity sniper url sniper swapper 
+bomba bir video ve kod geliyor aksamı bekleyın xxxxxxxx
